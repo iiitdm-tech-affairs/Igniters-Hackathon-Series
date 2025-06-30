@@ -13,6 +13,7 @@ Organized by 𝐓𝐞𝐜𝐡 𝐀𝐟𝐟𝐚𝐢𝐫𝐬, 𝐈𝐈𝐈𝐓𝐃
 𝐁𝐮𝐢𝐥𝐝 𝐰𝐢𝐭𝐡 𝐩𝐮𝐫𝐩𝐨𝐬𝐞. 𝐂𝐨𝐦𝐩𝐞𝐭𝐞 𝐰𝐢𝐭𝐡 𝐟𝐢𝐫𝐞. 𝐈𝐠𝐧𝐢𝐭𝐞 𝐲𝐨𝐮𝐫 𝐣𝐨𝐮𝐫𝐧𝐞𝐲.
 
 Stay Connected:
+
 Instagram: https://www.instagram.com/iiitdm.technical
 
 LinkedIn: https://www.linkedin.com/company/technical-affairs-iiitdm
@@ -20,5 +21,9 @@ LinkedIn: https://www.linkedin.com/company/technical-affairs-iiitdm
 GitHub: https://github.com/iiitdm-technical/
 
 YouTube: https://www.youtube.com/@iiitdm.technical
+
+WhatsApp Group : https://chat.whatsapp.com/CEjhrp1QolYLs1m4OgslMT
+
 WhatsApp Channel: https://whatsapp.com/channel/0029Vb6beeNInlqK3iOmwZ0h
+
 Linktree: https://linktr.ee/iiitdm.technical 
