@@ -14,8 +14,11 @@ Organized by 𝐓𝐞𝐜𝐡 𝐀𝐟𝐟𝐚𝐢𝐫𝐬, 𝐈𝐈𝐈𝐓𝐃
 
 Stay Connected:
 Instagram: https://www.instagram.com/iiitdm.technical
+
 LinkedIn: https://www.linkedin.com/company/technical-affairs-iiitdm
+
 GitHub: https://github.com/iiitdm-technical/
+
 YouTube: https://www.youtube.com/@iiitdm.technical
 WhatsApp Channel: https://whatsapp.com/channel/0029Vb6beeNInlqK3iOmwZ0h
 Linktree: https://linktr.ee/iiitdm.technical 
